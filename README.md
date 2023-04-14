@@ -1,4 +1,4 @@
-# Ale zadanie bedzie fajne
+# Ale zadanie FAJNE 😉🧈
 
 Sam robiłem 😂🤑
 
