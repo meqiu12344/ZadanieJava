@@ -4,4 +4,4 @@ Sam robiłem 😂🤑
 
 ## Authors
 
-- [@octokatherine](https://www.github.com/meqiu12344)
+- [@NAJLEPSZY PROGRAMISTA JAVA / PYTHON](https://www.github.com/meqiu12344)
